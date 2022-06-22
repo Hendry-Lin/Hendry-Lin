@@ -1,2 +1,2 @@
-👋 Hi, I’m @Hendry-Lin
+👋 Hi, I’m @Hendry-Lin.
 Let's Start the Coding
